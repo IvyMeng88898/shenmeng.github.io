@@ -6,5 +6,4 @@
 
 ### Skills
 
-
 ### Projects
